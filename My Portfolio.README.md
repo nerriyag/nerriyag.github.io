@@ -1,2 +1,0 @@
-# nerriyag.github.io
-
